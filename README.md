@@ -19,8 +19,10 @@ Year	Theme
 2023	Grow Food, Not Tobacco
 2022	Tobacco: Threat to Our Environment
 2021	Commit to Quit
+
 👉 Read the Full World No Tobacco Day 2026 Article Now:
 https://pragma.co.in/world-no-tobacco-day-2026/
+
 Related Topics
 - Tobacco awareness
 - Smoking side effects
