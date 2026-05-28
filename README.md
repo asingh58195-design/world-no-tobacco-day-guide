@@ -12,7 +12,9 @@ The 2026 Theme of World No Tobacco Day
 The theme for World No Tobacco Day 2026 is "Unmasking the Appeal: Countering Nicotine and Tobacco Addiction." Officially announced by the WHO, this theme exposes how the tobacco and nicotine industry continues to reinvent and repackage its products to hook a new generation, particularly children and adolescents, while evading stronger tobacco control measures worldwide. Products like e-cigarettes, nicotine pouches, and synthetic nicotine devices are marketed as "innovation" but are designed to sustain addiction and recruit new users. Alarming data backs this urgency — at least 40 million children aged 13–15 globally currently use at least one tobacco product, making it clear that the fight against tobacco is far from over.
 
 A Look at Past Themes
+
 Year	Theme
+
 2026	Unmasking the Appeal: Countering Nicotine and Tobacco Addiction
 
 2026	Bright Products. Dark Intentions. Unmasking the Appeal
