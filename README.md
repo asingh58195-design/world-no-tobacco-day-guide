@@ -14,10 +14,15 @@ The theme for World No Tobacco Day 2026 is "Unmasking the Appeal: Countering Nic
 A Look at Past Themes
 Year	Theme
 2026	Unmasking the Appeal: Countering Nicotine and Tobacco Addiction
+
 2026	Bright Products. Dark Intentions. Unmasking the Appeal
+
 2024	Protecting Children from Tobacco Industry Interference
+
 2023	Grow Food, Not Tobacco
+
 2022	Tobacco: Threat to Our Environment
+
 2021	Commit to Quit
 
 👉 Read the Full World No Tobacco Day 2026 Article Now:
