@@ -20,7 +20,7 @@ Year	Theme
 
 2026	Unmasking the Appeal: Countering Nicotine and Tobacco Addiction
 
-2026	Bright Products. Dark Intentions. Unmasking the Appeal
+2025	Bright Products. Dark Intentions. Unmasking the Appeal
 
 2024	Protecting Children from Tobacco Industry Interference
 
